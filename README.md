@@ -1,7 +1,7 @@
 # Olá! 👻
 
-Me chamo Rafael, um entusiasta da tecnologia e inovação apaixonado por explorar o mundo digital e suas infinitas possibilidades.
-Adoro ter novas experiências e aprender com a comunidade!
+Me chamo Rafael, um amante da tecnologia e da inovação, sempre fascinado pelo mundo digital e suas oportunidades sem limites. 
+Curto novas experiências e trocar conhecimentos com a comunidade!
 
 ### Outros lugares onde estou:
 
